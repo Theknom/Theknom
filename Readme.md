@@ -1,3 +1,6 @@
+### my policy
+If there is a possibility, go for it.
 # my favorite anime
-- sord art online
+- Accel World
+- Sord Art Online
 - 86
